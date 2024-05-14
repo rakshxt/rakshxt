@@ -1,3 +1,3 @@
-![..](https://euphoricvibes.com/wp-content/uploads/2020/08/d4uvymg-349fdcf2-e955-443b-88c8-b517f97f2408.jpg)
+![..](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https://bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com/public/images/767ab6a2-3a4d-4b4e-9911-ff58b32a5fb4_1920x1080.png)
 
-isn't it fascinating how we always end up in the state of unconsiousness
+sometimes, it's pain in the ass, to even live
